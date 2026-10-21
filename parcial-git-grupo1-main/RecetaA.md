@@ -2,11 +2,11 @@
 ##  Ingredientes 
 ## Instrucciones
 <br>
-- Doscientos gramos de pasta.
-- Una taza de champiñones laminados.
-- Media taza de crema de leche.
-- Dos dientes de ajo.
-- Una cucharada de aceite de oliva.
+-200gramos de pasta.
+- 1 taza de champiñones laminados.
+- 1/2 taza de crema de leche.
+- 2 dientes de ajo.
+- 1 cucharada de aceite de oliva.
 - Sal y pimienta al gusto.
 <br><br><br>
 Instrucciones
